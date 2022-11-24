@@ -9,4 +9,4 @@ My creativity has made me an effective team leader because I can anticipate prob
 
 I enjoy reading detectives, but I hate romantic stories))) . I think it’s just a waste of time. And of course I like music! I'm fond of music of the 60-80s, like the the Rolling Stones and Elvis Prestly.
 
-![просто прикольное фото](C:\Users\oktob\OneDrive\Bilder\photo1.jpg)
+![](https://disk.yandex.ru/client/disk?idApp=client&dialog=slider&idDialog=%2Fdisk%2F%D0%9C%D0%B8%D1%88%D0%BA%D0%B8.jpg)
